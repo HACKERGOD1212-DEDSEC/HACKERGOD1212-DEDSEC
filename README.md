@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on everything I know
 - 📫 How to reach me: discord: HACKERGOD1212#2715 I'd like to just Talk with me in the discord yea ... 
 - ❤️ I love tails he is so cute
+- I can work with html,css and with javascript(35%)
 - And i'm boy and 14 years old
 
 <!---
